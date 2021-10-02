@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nesssssaaaaaaaaaaaa
+- 👀 I’m interested in friday night funkin/fnf
+- 🌱 I’m currently learning nothing much
+- 📫 How to reach me on Discord. Mother<3#3810
